@@ -1,4 +1,4 @@
-# 
+# Get the ultimate pancakeswap trading bot with updated Automation Script for pancakeswap trading bot | cross-chain-arbitrage + staking-integration. Featuring cross-chain-arbitrage
 
 
 
